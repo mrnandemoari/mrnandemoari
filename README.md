@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mrnandemoari. You can call Emu or Aru.
+- 👀 I’m interested in lots of things, like programming, socializing, teaching, singing, etc.
+- 🌱 I’m currently learning web development using HTML, CSS, JavaScript, PHP, Laravel, etc. I'm also learning different languages, such as English, Japanese, and Arabic (I'm Indonesian btw)
+- 💞️ I’m looking to collaborate on anything that benefits me honestly.
+- 📫 How to reach me: [MRNandemoari](https://www.instagram.com/mrnandemoari)
+- 😄 Pronouns: He/Him ofc
+- ⚡ Fun fact: I...
